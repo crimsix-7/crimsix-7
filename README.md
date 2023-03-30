@@ -1,5 +1,5 @@
 Exploring new ideas.
-Bitcoin maximalist.
+AI maximalist.
 
 
 A Computer engineering student at Memorial university of newfoundland. I am very optimistic about the future of software and technology, specifically in A.I, Cyber Security.
